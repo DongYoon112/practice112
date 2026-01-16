@@ -1,2 +1,2 @@
 # practice112
-ny better than la
+im lowkirkly goated
